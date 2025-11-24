@@ -4,7 +4,7 @@
 
 Hey MohdShoeb13!
 
-Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
+Mona here. I'm done preparing your exercise. Hope you enjoy! haha 💚
 
 Remember, it's self-paced so feel free to take a break! ☕️
 
